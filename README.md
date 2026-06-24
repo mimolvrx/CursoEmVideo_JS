@@ -18,5 +18,5 @@ Registrar minha jornada de aprendizado e praticar os conceitos apresentados nas 
 
 ---
 
-👩‍💻 **Yasmim Oliveira**
+👩🏻‍💻 **Yasmim Oliveira**
 📖 Curso em Vídeo — Professor Gustavo Guanabara
